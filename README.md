@@ -1,4 +1,4 @@
-# Święty Spokój List – Poland Edition 🇵🇱
+# Lista Świętego Spokoju - Poland Edition 🇵🇱
 
 Bo czasem lepiej zablokować niż się denerwować.  
 Ta lista to Twój pierwszy krok do **świętego spokoju w internecie**.
